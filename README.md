@@ -1,4 +1,0 @@
-OfriAndIdo
-==========
-
-OfriAndIdo Wedding
